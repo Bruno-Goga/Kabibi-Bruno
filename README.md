@@ -1,2 +1,2 @@
 # Kabibi-Bruno
-Success need determinatio
+Success need determination
